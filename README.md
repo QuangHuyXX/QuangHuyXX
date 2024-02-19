@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @QuangHuyXX
+- 👋 Hi, I’m QuangHuy
 - 👀 I’m interested in Manga, Movie
 - 🌱 I’m currently learning IT
 - 📫 Contact me at https://www.facebook.com/IIDemoX
